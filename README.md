@@ -3,8 +3,5 @@
 Currently I'm looking for internship.
 contact with me
 gmail-rakeshtelakalapally778@gmail.com 
-Linkedin- Rakesh telakalapally
-instagram- rockstar_rakesh124
-
 
 
